@@ -7,4 +7,4 @@ Something between traveling for fun and seeing various packages and buying produ
 All these things are attractive and good until they realize that they can get the same product at a better price elsewhere.
 It is from a place that does not exist yet and it is supposed to do this in a special and innovative way.
 A few companions remain until the end.
-If you don't know, there is no reason why it didn't happen.
+If you don't know it all, there is no reason for it not to be or not to be.
